@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @black2pl
+- 👀 What are you looking?
+- 🌱 <--- This is a seedling (wow, nikt nie wiedzial)
